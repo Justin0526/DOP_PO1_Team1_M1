@@ -18,3 +18,4 @@ From that day on, Eli made it his mission to uncover stories wherever he went, a
 
 Hello, Justin. I am Ye Yint Aung. Nice to meet you in GitHub.
 
+yay now i don't need to use cmd and notpad 
