@@ -18,3 +18,7 @@ From that day on, Eli made it his mission to uncover stories wherever he went, a
 
 Hello, Justin. I am Ye Yint Aung. Nice to meet you in GitHub.
 
+
+
+When the world grows quiet and the sky turns silver, it’s easy to feel small beneath the endless stars. Yet even in the stillness, life hums softly — in the breeze that brushes your skin, in the heartbeat that refuses to fade, in the hope that lingers like morning light. Every calm night is a promise that dawn will return, carrying warmth for those who dare to keep dreaming. - Shein
+
